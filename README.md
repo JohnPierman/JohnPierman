@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @JohnPierman, a student pursuing a dual major in Computer Science and Mathematics at Brock University!
+- 👋 Hi, I’m @JohnPierman, a student pursuing a Honors Degree in Mathematics, with minors in Computer Science and Economics at Brock University!
 
 
